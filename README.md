@@ -1,4 +1,4 @@
-# Hajimemashite, Lollie desu 🎀
+# はじめまして、Lollieです 🎀
 
 <sub>EN — Nice to meet you, I'm Lollie &nbsp;·&nbsp; PT-BR — Prazer, eu sou a Lollie</sub>
 
